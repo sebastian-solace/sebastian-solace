@@ -1,5 +1,17 @@
 <div align="center">
- <video src="https://github.com/user-attachments/assets/c33ba386-4815-4192-ae67-260000326c60"/>
+ 
+ ###### art by [twowo9](https://x.com/twowo9) 
+ 
+ <br><br>
+
+ 
+<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/kyuttt2.png"/>
+ <br><br> sebastian or dukeㅤㅤ—ㅤㅤhe they <br><br> in either pressure associated areas, genshin or fpe area(s) <br><br>
+
+###  [atabook](https://sebastians-shop.atabook.org)ㅤㅤ[strawpage](https://judiciaries.straw.page)
+
+<br><br>
+
 </div>
 
 
